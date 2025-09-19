@@ -1,0 +1,1 @@
+bolme islemindeki degisiklik
